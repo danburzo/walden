@@ -13,3 +13,7 @@ humankind - omenire
 
 _necessary of life_ - necesar a vieții, necesare ale vieții -- pentru a distinge de _necessity_.
 _gross necessity_ - necesitate de bază (ar putea fi și necesitate brută)
+
+_luxuri_ și _conforturi ale vieții_?
+
+unnatural - nefiresc

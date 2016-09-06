@@ -62,5 +62,5 @@ Atît despre această supunere oarbă față de un oracol neîndemînatic, care 
 
 ¶26. Atîtea zile de toamnă, da, și de iarnă, petrecute în afara orașului, încercînd să aud ce era în vînt, să aud și să-l transmit expres! Aproape mi-am scufundat tot capitalul în asta, și mi-am pierdut suflul în tocmeală, alergînd după el. Dacă ar fi privit oricare dintre partidele politice, fiți siguri că ar fi apărut în Gazetă la prima informare. Alte dăți, privind din observatorul vreunei stînci sau al vreunui copac, ca să telegrafiez orice nouă sosire; ori așteptînd seara pe vîrfuri de dealuri să cadă cerul, sperînd să prind ceva, deși n-am prins niciodată mare lucru, și atîta, se dizolva, precum mana, la loc în soare.
 
-¶27. Multă vreme am fost reporter la un jurnal, de nu prea mare circulație, al cărui editor n-a găsit de cuviință să tipărească grosul contribuțiilor mele și, după cum e obișnuit cu scriitorii, mi-am primit doar munca pentru osteneală. Cu toate acestea, în cazul meu, osteaneala mi-a fost în sine răsplată.
+¶27. Multă vreme am fost reporter la un jurnal, de nu prea mare circulație, al cărui editor n-a găsit niciodată de cuviință să tipărească grosul contribuțiilor mele și, după cum e obișnuit cu scriitorii, mi-am primit doar munca pentru osteneală. Cu toate acestea, în cazul meu, osteaneala mi-a fost în sine răsplată.
 
